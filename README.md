@@ -1,0 +1,2 @@
+# imalat-ortagim-gizlilik
+Gizlilik
